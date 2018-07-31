@@ -1,2 +1,2 @@
-# I Want To Work @ GloboCom
+# I Want To Work @ Globo.com
 https://talentos.globo.com/
